@@ -1,6 +1,6 @@
 # TDE 
 
-Vídeo: https://youtu.be/bRaY_mFgK5s
+Vídeo: https://youtu.be/7xnqI0Gqh-s
 
 Rafael Schuck Segatto e Rafael Brennsen
 
